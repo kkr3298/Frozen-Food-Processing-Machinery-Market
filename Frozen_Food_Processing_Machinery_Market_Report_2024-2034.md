@@ -3,7 +3,7 @@
 
 ## Market Overview
 
-The frozen food processing machinery market was valued at **US$ 22.8 billion in 2023** and is projected to reach **US$ 35.3 billion by 2034**, growing at a CAGR of **4.2%** from 2024 to 2034.
+The [frozen food processing machinery market](https://www.transparencymarketresearch.com/frozen-food-processing-machinery-market.html) was valued at **US$ 22.8 billion in 2023** and is projected to reach **US$ 35.3 billion by 2034**, growing at a CAGR of **4.2%** from 2024 to 2034.
 
 This growth is driven by:
 - Increasing global demand for convenient and ready-to-eat frozen foods
